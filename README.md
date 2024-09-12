@@ -32,5 +32,5 @@
 
 ## 😄 Fun facts:
 - I love learning, working out and creating side projects in my spare time!
-- I usually study German and improving my English for my career and my future!
+- I'm studying German and improving my English for my career and my future!
 - I love to play soccer with my friends!
